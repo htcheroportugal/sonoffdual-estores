@@ -1,1 +1,1 @@
-# sonoffdual-estores
+Créditos @Bruno horta
